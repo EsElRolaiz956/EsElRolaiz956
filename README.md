@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ...sex 
 - 📫 How to reach me ...956-685-0207
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...Eating wet pussy & ass are the most delicious things ti do😋💦
+- ⚡ Fun fact: ...Eating wet pussy & ass are the most delicious things to do😋💦
 
 <!---
 EsElRolaiz956/EsElRolaiz956 is a 
